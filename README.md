@@ -1,2 +1,1 @@
-# George Harrison
-
+# Freddie Mercury
