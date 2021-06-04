@@ -1,1 +1,1 @@
-# John Lennon
+# George Harrison
