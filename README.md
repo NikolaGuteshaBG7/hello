@@ -1,1 +1,1 @@
-# John Lennon
+# Ringo Starr
