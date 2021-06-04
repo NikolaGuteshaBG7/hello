@@ -1,1 +1,2 @@
 # Freddie Mercury
+# Brian May
