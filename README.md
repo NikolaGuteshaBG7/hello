@@ -1,1 +1,2 @@
 # Freddie Mercury
+# John Deacon
